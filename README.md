@@ -4,6 +4,9 @@ Welcome to my website! I am Camila Angulo (pronouns: she/her/ella). I am an Assi
 
 I received my Ph.D. degree in Political Science from the [University of Wisconsin—Madison](https://polisci.wisc.edu/). My research interests include political economy of development, criminal governance, violence, and public opinion. My work has been published in academic journals such as World Development, the Journal of Politics in Latin America, Governance, the Wisconsin Law Review, and Colombia Internacional. 
 
+## C.V.
+
+You can download my C.V. from [here](https://drive.google.com/file/d/1WV-RA1jVBJ4GFzD4ZOUN7diJs6oPPOKQ/view?usp=drive_link)
 
 ## Contact Information
 
@@ -13,5 +16,3 @@ Indiana University Northwest
 Gary, IN 46408  
 caangulo'at'iu.edu  
 
-
-## [C.V.](https://drive.google.com/file/d/1WV-RA1jVBJ4GFzD4ZOUN7diJs6oPPOKQ/view?usp=drive_link)
