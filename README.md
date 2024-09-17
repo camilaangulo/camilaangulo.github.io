@@ -8,13 +8,9 @@ I received my Ph.D. degree in Political Science from the [University of Wisconsi
 ## Contact Information
 
 Department of History, Philosophy, Political Science and Religious Studies
-
 Indiana University Northwest
-
 3400 Broadway
-
 Gary, IN 46408
-
 caangulo'at'iu.edu
 
 
