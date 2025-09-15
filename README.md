@@ -6,7 +6,7 @@ I received my Ph.D. degree in Political Science from the [University of Wisconsi
 
 ## C.V.
 
-You can download my C.V. from [here](https://drive.google.com/file/d/1WV-RA1jVBJ4GFzD4ZOUN7diJs6oPPOKQ/view?usp=drive_link)
+You can download my C.V. from [here](https://drive.google.com/file/d/1moGf_A4lYUBM3JFrT1Gh887XqoBwDw3g/view?usp=sharing)
 
 ## Contact Information
 
